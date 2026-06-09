@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m Vasundhara Singh<br>👀 I’m interested in contributing and growing in corporate life.<br>🌱 I’m currently learning Electronics and communication (B.TECH)<br>💞️ I’m looking to collaborate on open-source and beginner-friendly projects.<br>📫 How to reach me vasundharasinghthakur1234@gmail.com<br>😄 Pronouns: her/she<br>⚡ Fun fact: I believe consistency beats talent, and I try to learn something new every day.<br>
+👋 Hi, I’m Vasundhara Singh<br>👀 I’m interested in contributing and growing in corporate life.<br>🌱 Graduate Electronics and communication (B.TECH)<br>💞️ I’m looking to collaborate on open-source and beginner-friendly projects.<br>📫 How to reach me vasundharasinghthakur1234@gmail.com<br>😄 Pronouns: her/she<br>⚡ Fun fact: I believe consistency beats talent, and I try to learn something new every day.<br>
 
 
 ## 🌐 Socials:
